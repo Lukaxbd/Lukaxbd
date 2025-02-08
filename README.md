@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Lukaxbd
 - TVZ student
-- Climbing 🧗‍♂️, riding 🏍️, extreme sports ❎
+- Climbing 🧗‍♂️, riding 🏍️, extreme sports
 
